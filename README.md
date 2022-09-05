@@ -1,0 +1,2 @@
+# aim-
+Aim in life
